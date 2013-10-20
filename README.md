@@ -1,4 +1,0 @@
-hiiktuu
-=======
-
-oromo dictionary
